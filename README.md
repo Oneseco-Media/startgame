@@ -1,1 +1,1 @@
-Oneseco Media Network is a community of digital creators and developers who believe that level 3 of this online infinite game is not meant to be played alone. Solo players will lose first. # .github
+Oneseco Media is a digital media consulting company with plans to build a diverse community of digital creators and developers who are ready for Web3's focus on decentralization and the community collaboration that comes with it. 
